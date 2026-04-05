@@ -1,0 +1,1 @@
+# Szambo-z-DNA-po-ydach-ze-wiata
